@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **prajwal.vaidya1204@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1L25EERAo5vRp_2boSAL1doeeD-OR43Iu/view?usp=sharing](https://drive.google.com/file/d/1L25EERAo5vRp_2boSAL1doeeD-OR43Iu/view?usp=sharing)
+- 📄 Know about my experiences from my [Resume](https://drive.google.com/file/d/1PytkL6mvLAZFogqALnGnF2EMqKIHZfAS/view)
 
 - ⚡ Fun fact **I am also a Musician**
 
